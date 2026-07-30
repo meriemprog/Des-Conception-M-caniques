@@ -1,3 +1,7 @@
+
+
+Uploading pawn.mp4…
+
 ![Uploading bb85b43c3b2720e9d3b490172deaf5dd.png…]()
 <img width="1430" height="867" alt="curseur eurobot" src="https://github.com/user-attachments/assets/64e32528-9e84-4552-b065-abdc58a3af4e" />
 
