@@ -22,4 +22,3 @@ https://github.com/user-attachments/assets/36a4318a-8cc1-4773-b1b4-96ec53b29395
 
 https://github.com/user-attachments/assets/a8325603-71cb-4962-8005-7b8489d64ac0
 
-<img width="7015" height="4960" alt="zawba3a piece" src="https://github.com/user-attachments/assets/2e893003-23b4-492b-ae4e-8bad1305889f" />
