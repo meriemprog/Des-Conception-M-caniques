@@ -13,3 +13,8 @@ https://github.com/user-attachments/assets/d3f533aa-5d80-4dcc-8805-3fad7f14a449
 https://github.com/user-attachments/assets/668c3787-02c0-4d0c-b170-8af8d50258f4
 
 <img width="1653" height="2339" alt="kat33a aa tayer" src="https://github.com/user-attachments/assets/83ce58df-df88-4949-a925-57852bc103f0" />
+
+
+https://github.com/user-attachments/assets/36a4318a-8cc1-4773-b1b4-96ec53b29395
+
+<img width="1097" height="521" alt="kat3a random 2" src="https://github.com/user-attachments/assets/a3dac233-8f3e-4279-9d6f-8f210df1a47b" />
