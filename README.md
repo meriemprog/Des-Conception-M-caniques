@@ -18,3 +18,8 @@ https://github.com/user-attachments/assets/668c3787-02c0-4d0c-b170-8af8d50258f4
 https://github.com/user-attachments/assets/36a4318a-8cc1-4773-b1b4-96ec53b29395
 
 <img width="1097" height="521" alt="kat3a random 2" src="https://github.com/user-attachments/assets/a3dac233-8f3e-4279-9d6f-8f210df1a47b" />
+
+
+https://github.com/user-attachments/assets/a8325603-71cb-4962-8005-7b8489d64ac0
+
+<img width="7015" height="4960" alt="zawba3a piece" src="https://github.com/user-attachments/assets/2e893003-23b4-492b-ae4e-8bad1305889f" />
