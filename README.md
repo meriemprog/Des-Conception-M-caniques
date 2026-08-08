@@ -1,3 +1,8 @@
+<img width="1020" height="880" alt="magic" src="https://github.com/user-attachments/assets/4baf2c25-70f1-430d-9a9b-919047ff0f2e" />
+
+
+https://github.com/user-attachments/assets/466e0142-17c6-409c-a989-ffe64d323180
+
 
 https://github.com/user-attachments/assets/e2e342c7-2650-4f4c-a60c-20c7ad4587e7
 
