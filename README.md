@@ -62,5 +62,9 @@ https://github.com/user-attachments/assets/a36e23eb-26f4-4cd3-bcb6-fc99e8aaa63f
 
 
 
+<img width="1240" height="867" alt="autism" src="https://github.com/user-attachments/assets/7e74afe0-ae97-4762-b30a-3fe1e62acae9" />
+<img width="946" height="2047" alt="autism" src="https://github.com/user-attachments/assets/f6f696fe-756f-41c3-9ffe-16c1af73321f" />
+
+
 
 
