@@ -1,5 +1,3 @@
-![Uploading kat33a aa tayer.png…]()
-
 
 https://github.com/user-attachments/assets/e2e342c7-2650-4f4c-a60c-20c7ad4587e7
 
@@ -14,3 +12,4 @@ https://github.com/user-attachments/assets/d3f533aa-5d80-4dcc-8805-3fad7f14a449
 
 https://github.com/user-attachments/assets/668c3787-02c0-4d0c-b170-8af8d50258f4
 
+<img width="1653" height="2339" alt="kat33a aa tayer" src="https://github.com/user-attachments/assets/83ce58df-df88-4949-a925-57852bc103f0" />
