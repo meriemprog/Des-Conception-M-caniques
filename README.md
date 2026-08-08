@@ -49,6 +49,11 @@ Uploading systeme de transmission de mouvement1(rotation 0°  90°).mp4…
 
 https://github.com/user-attachments/assets/6146372b-6067-447d-a9b8-5337ebf20509
 
+<img width="1621" height="741" alt="random0" src="https://github.com/user-attachments/assets/a497188e-b60e-4e74-b89d-5b3a3de60d86" />
+
+
+https://github.com/user-attachments/assets/04441e61-642b-450a-a97f-f6992f6f0fa4
+
 
 
 
